@@ -26,14 +26,21 @@ I understand that any false representation regarding ownership or authorization 
 
 By submitting my work, I grant the Producers, their affiliates, successors, and assigns a non-exclusive, royalty-free, limited
 license to:
+
 ● Use, reproduce, distribute, display, and publicly perform my Submission solely for:
+
 ○ Streaming and publishing the recorded session as part of the Entune Series.
+
 ○ Promoting the Series and its affiliated platforms.
+
 ○ Inclusion in the Producer’s project portfolios.
 
+
 Restrictions:
+
 ● The Producers may not monetize my Submission through sales, licensing, advertisements, or third-party agreements
 without obtaining separate written approval from me.
+
 ● The Producers may edit the winning Submission for production quality but will not alter its fundamental artistic intent
 without my approval.
 
@@ -41,25 +48,38 @@ without my approval.
 
 The Producers' monetization strategy centers on seeking sponsorship funding
 with a clear, artist-focused approach:
+
 ● Sponsorship funds will primarily be used to:
+
 ○ Pay performance stipends to participating artists
+
 ○ Cover episode production costs
+
 ● Any sponsorship proceeds exceeding production and artist compensation will be reinvested into the project's prize pool
+
 ● The goal is to sustain the project while serving the artist community and expanding its impact
+
 By maintaining a transparent, limited overhead model, we aim to directly support artists and the project's mission.
 
 2.3. Retention of Ownership & Artist Approval
 
 ● I retain full ownership of my original Submission, including all copyrights and underlying rights.
+
 ● The Producers may not sublicense or transfer my Submission to third parties for unrelated commercial use without
 my express written permission.
+
 ● I reserve the right to request reasonable consultation on how my Submission is used in promotional materials,
 including the placement of credits.
+
 ● The Producers will provide credit for my work through:
+
 ● On-screen credits (when feasible)
+
 ● Digital platform artist tags
+
 ● Promotional material attributions (Social media posts, Press releases, Marketing graphics, Event/series
 promotional materials, Website descriptions related to the series)
+
 
 3. No Obligation & No Guarantee of Selection
 
