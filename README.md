@@ -91,10 +91,8 @@ The Producers may assign or transfer their rights and obligations under this Agr
 By submitting this form, I consent to receive SMS (text) messages and emails from Crisp Recording Studios. I understand that this is not a condition of my submission, that standard message and data rates may apply, and that I can opt out at any time by following the provided unsubscribe instructions or by contacting Crisp Recording Studios directly.
 
 8. Acknowledgment & Agreement
-8.1. Age Requirement
-I confirm that I am at least 18 years old (or the age of majority in my jurisdiction). If I am younger than 18, I affirm that I have obtained permission from my parent or legal guardian, who agrees to these terms on my behalf.
 
-8.2. Acceptance of Terms
+8.1. Acceptance of Terms
 I acknowledge that I have read, understood, and voluntarily agree to these Terms & Conditions—including the provisions that protect both the Producers’ operational needs and the creative integrity and intellectual property of my work. I further affirm that I have had the opportunity to seek independent legal counsel before submitting my work.
 
 By submitting my work, I confirm my acceptance of these legally binding Terms & Conditions.
